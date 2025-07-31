@@ -1,4 +1,4 @@
-# **🌸 Soulful Symphony of Transmedia Storytelling 🌍✨**
+# **🌸 weaving stories across worlds — the art of transmedia 🌍✨**
 
 ---
 
