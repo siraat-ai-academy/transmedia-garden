@@ -1,2 +1,0 @@
-# transmedia-garden
-transmedia-garden
