@@ -1,4 +1,3 @@
----
 # 🌷✨ Growing Storyworlds Across Platforms — A Soulful Transmedia Guide
 
 > ✨ *"Stories are not only told. They are felt, lived, shared — across whispers of platforms, in the breath of characters, in the hearts of those who dare to dream them alive."* — **Mr. Eks2**
